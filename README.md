@@ -2,4 +2,4 @@
 
 Link do site disponibilizado: 
 
-Link da planilha de registro de informação: 
+Link da planilha de registro de informação: https://shorturl.at/D9TjQ
